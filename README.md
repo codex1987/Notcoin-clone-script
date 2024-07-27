@@ -15,34 +15,20 @@ Also in our portfolio there are ready-made clickers that we can quickly set up f
 
 ***Just Demo***
 
-*This is just a demo. Some scripts are not given here you will get all scripts when you buy. I have not given all scripts for security. You will get all scripts if you buy.*
+*Check our demo bot its just demo not for airdrop working. Working script available only $60
 
-👉  https://t.me/hello96T_bot/Notcoin
+*Tapswap
+Notcoin
+Hamster kombat
+memefi
+Some other’s bots full source available + ton wallet connect suported.*
+
+👉  https://t.me/NotcloneBot
  
 **Functions:**
 - 🤘 Tap - Click for mine coins
 - 🚀 Boosts - Daily rewards and Boosts
 - 🤝 Referrals - Invite friends and recieve rewards
-- 📝 Tasks - Do tasks and earn points
- 
-**You are getting:**
- 
-- A configured bot that is already working
-- Admin panel for ease of management (adding tasks, etc.)
-- Basic functional (mine-tap / boosts / refferals / tasks)
-- Minor design adjustments (change styles / logos) 
-- Source code
- 
-We can install ready-made solutions for you, or make you a unique clicker with a unique design.
- 
-**Price from $60 and depends on your request.** More details: https://t.me/MR_ETHAN_KELIN 
- 
-## 💎 Benefits work with W3Lab:
- 
-- We always work for results
-- Attention to target audience
-- Presence on the most important platforms of the crypto industry
-- Our company Verified Pinksale & OKX Partner 
 - 📝 Tasks - Do tasks and earn points
  
 **You are getting:**
